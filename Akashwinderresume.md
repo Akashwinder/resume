@@ -2,9 +2,9 @@
 ==========
  Bothell, Washington 98021
 
-Contact no: (425)6989990
+Contact no: (425) 698  (9990)
 
-Email: akashsandha123@gmail.com
+Email: akashsandha123 AT gmail.com
 
 **Summary:**
 
